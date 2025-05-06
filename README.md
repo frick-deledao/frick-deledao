@@ -1,4 +1,4 @@
-- I hate Deledao. Never thought I'd say this, but bring back GoGuardian.
+- buahahahaha
 
 <!---
 frick-deledao/frick-deledao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
